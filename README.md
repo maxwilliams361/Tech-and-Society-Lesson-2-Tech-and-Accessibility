@@ -1,1 +1,0 @@
-# Tech-and-Society-Lesson-2-Tech-and-Accessibility
